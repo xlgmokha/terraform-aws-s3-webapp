@@ -1,1 +1,1 @@
-Let's go to [example b](../example-b/)
+Let's go to [EXAMPLE BA-BA-BA-BEE](../example-b/)
